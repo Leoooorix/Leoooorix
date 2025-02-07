@@ -1,1 +1,1 @@
-# 👋 Hey, sono [Leo]!
+# Hey, sono Leo
